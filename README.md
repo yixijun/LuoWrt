@@ -12,4 +12,4 @@ https://luonako.cn/2025/10/02/r2s%e5%9b%ba%e4%bb%b6%e4%bb%8b%e7%bb%8d%e5%88%b7%e
 
 
 天依天依
-<img src="https://imgbed.bil-misaka.eu.org/file/github/luowrt/1759338383624_洛天依猫爪动态表情包_133341660.gif" alt="洛天依猫爪动态表情包_133341660.gif" width=100% />
+![洛天依猫爪动态表情包_133341660.gif](https://imgbed.bil-misaka.eu.org/file/github/luowrt/1759338383624_洛天依猫爪动态表情包_133341660.gif)
